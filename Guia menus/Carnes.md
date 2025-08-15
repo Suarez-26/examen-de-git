@@ -1,1 +1,0 @@
-*** menu cocina de carnes  ***
